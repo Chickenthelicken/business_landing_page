@@ -1,1 +1,4 @@
-# business_landing_page
+Image Credits
+
+[marketing_charts.jpg:
+Yashowardhan Singh (https://unsplash.com/@ysdnsingh)]
